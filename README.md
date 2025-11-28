@@ -1,1 +1,0 @@
-# Muy-Facil-Strat-Player-2-
